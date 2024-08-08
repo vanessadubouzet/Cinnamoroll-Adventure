@@ -1,0 +1,1 @@
+Cinnamoroll Adventure takes players on a journey through a whimsical forest maze in search of a hidden treasure box. With the help of the beloved character Cinnamoroll, players must navigate through the maze, evade lurking monsters (cats), and ultimately uncover the treasure box's whereabouts.
